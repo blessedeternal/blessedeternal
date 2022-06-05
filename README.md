@@ -6,7 +6,7 @@ this account is for ponytown! please read my [rentry](https://rentry.co/ponybyi)
 - [pronouns](https://pronouny.xyz/u/bubby)
 - sorry if i run into you & u have a tt/td!
 - i hate crowds most of the time
-- im *very* uncomfortable with roleplaying, and will probably temp hide if you ty to do so.
+- im *very* uncomfortable with roleplaying, and will probably temp hide if you try to do so.
 - all of my skins will have my github linked!  
 ![A red and black blinkie that says "I Bite" with one bat on each side of the text. The colors switch places at regular intervals.](https://64.media.tumblr.com/588c485a783611e27fc1874f90f43715/a364ac8eef42b0d9-43/s250x400/3ea32e1cf3206b1ff04f79f66f665a8402261420.gifv)
 
