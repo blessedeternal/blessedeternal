@@ -4,6 +4,7 @@ this account is for ponytown! please read my [rentry](https://rentry.co/ponybyi)
 
 ### 🦇 about me
 - [pronouns](https://pronouny.xyz/u/bubby)
+- whisper if u need to talk
 - sorry if i run into you & u have a tt/td!
 - i hate crowds most of the time
 - im *very* uncomfortable with roleplaying, and will probably temp hide if you try to do so.
