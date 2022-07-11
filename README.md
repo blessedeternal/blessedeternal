@@ -19,14 +19,15 @@ this account is for ponytown! please read my [rentry](https://rentry.co/ponybyi)
 | ⚪    | romantic ccs          |
 | etc   | normal cos            |
 
+pronouns in name = oc, not refective of my Actual pronouns
 
 ![A red and black blinkie with five bats in the text box.](https://64.media.tumblr.com/2a8249f8052d7e1da51f19e2b3bbc7ff/a364ac8eef42b0d9-f1/s250x400/270c26dcbd016517e5bb938728a2227bc580b291.gifv)
 
 ### 🧛 dni
-***proshippers  
+proshippers  
 dsmp/south park/vivziepop/etc fans  
 pro-tulpa weirdos  
-anti neoprns***
+anti neoprns
 <dl>
   <dt>minors</dt>
   <dd>i’m mostly on 18+ anyway</dd>
