@@ -10,7 +10,7 @@ sometimes i hate being in crowds
 - frequently in discourse, proship, anti-neopronouns, minors  
 (i’m on 18+ for a reason. gtfo)  
 - dream smp/south park/vivziepop/etc fans  
-- tiktok users /hj  
-- if u glorify delusions/mental illness fuck off  
+- anti-recovery/"d/a"
+- tiktok users /hj   
 - & if u try to fakeclaim people on horse game go outside  
 if you are or associate w the haze system, hide me. never talk to me.  
