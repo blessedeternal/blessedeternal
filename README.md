@@ -1,4 +1,4 @@
-# executive suite note: you must not be here.
+# this account is now the property of the blessed eternal.
 this is a condensed version of my [rentry](https://rentry.co/blessedeternal) without images or a second page!  
 (please go there for more info & a cooler layout)
 ## about me  
