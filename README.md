@@ -6,7 +6,8 @@ mo **20** they/ecto/[+](https://pronouny.xyz/u/bubby)
 all skins linked to **blessedeternal** on github  
 i don't always have chat visible. whisp if needed
 ## dni  
-d/a/irls, proshippers, minors  
+proshippers, minors  
 in discourse often, anti-neoprns  
-dsmp/south park/vivziepop/etc fans 
+dsmp/south park/vivziepop/etc fans  
+pls do not talk to me abt ur delusions ty  
 please hide me first.
