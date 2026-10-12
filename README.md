@@ -1,10 +1,10 @@
-[![A green-tinted photo of a house, overgrown with plants.](https://i.imgur.com/ERPTJKX.png)](https://www.flickr.com/photos/thewet/8752987447/)
+![A green-tinted picture of a keyboard, overgrown with plants.](https://i.ibb.co/rfq8TRVT/banner.png)
 
 all my skins link here
 
 i don't have chat visible 24/7, whisper if needed
 
-i hide annoying fandoms & minors
+i hide annoying fandoms, proshippers, & minors
 
 ---
 **name key**
