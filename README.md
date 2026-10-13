@@ -4,7 +4,9 @@ all my skins link here
 
 i don't have chat visible 24/7, whisper if needed
 
+
 i hide annoying fandoms, proshippers, & minors.
+
 we will not get along if you believe transandrophobia is a useful term.
 
 ---
@@ -12,5 +14,7 @@ we will not get along if you believe transandrophobia is a useful term.
 > pronouns = oc's pronouns, *not mine*
 > 
 > ⭐ = past lives
+> 
 > 🌠 = sonas
+> 
 > 🌙 = romantic ccs
